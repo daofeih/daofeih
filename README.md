@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @daofeih
+- 👀 I’m interested in reading, writing, coding, and thinking.
+- 🌱 I’m currently learning many things.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me: [Email](mailto:daofeih@gmail.com)
